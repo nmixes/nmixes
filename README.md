@@ -12,7 +12,7 @@
   <dl>
     <dt><br></dt>
 
-$\color{#fbf0dc}\textsf{⠀⠀⠀⠀⠀⠀⠀⠀⠀ssamu⠀or⠀⠀bluey}$
+$\color{#fbf0dc}\textsf{⠀⠀⠀⠀⠀⠀⠀⠀⠀khap⠀or⠀⠀bluey}$
 
 $\color{#8fdc51}\textsf{⠀⠀⠀⠀⠀⠀૮ • ﻌ - ა⠀⠀minor . . . lesbian}$
 
