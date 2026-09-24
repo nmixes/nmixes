@@ -12,13 +12,13 @@
   <dl>
     <dt><br></dt>
 
-$\color{#fbf0dc}\textsf{⠀⠀⠀⠀⠀⠀⠀⠀⠀khap⠀or⠀⠀bluey}$
+$\color{#fbf0dc}\textsf{⠀⠀⠀⠀⠀⠀⠀⠀⠀mixx⠀or⠀⠀bluey}$
 
 $\color{#8fdc51}\textsf{⠀⠀⠀⠀⠀⠀૮ • ﻌ - ა⠀⠀minor . . . lesbian}$
 
 $\color{#fbf0dc}\textsf{⠀⠀⠀⠀⠀⠀⠀isfp ,, dive ,, fearnot + ⠀𐂯}$
 
-⠀⠀⠀⠀⠀ [strawpg](https://ssamuchae.straw.page/)$\color{#fbf0dc}\textsf{⠀⠀⠀⠀⋆}$⠀⠀⠀⠀[prns.pg](https://en.pronouns.page/@ssamuchae)
+⠀⠀⠀⠀⠀ [strawpg](https://nmixes.straw.page/)$\color{#fbf0dc}\textsf{⠀⠀⠀⠀⋆}$⠀⠀⠀⠀[prns.pg](https://en.pronouns.page/@nmixes)
 
 $\color{#8fdc51}\textsf{⠀⠀⠀⠀⠀@pt-friendships ♡ bdaycake trio!}$
 
